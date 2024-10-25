@@ -6,6 +6,7 @@
 - ʚɞ Estou na 1ª serie do Ensino Médio
 - ୨୧ Estou estudando na [Alura](https://www.alura.com.br)
 - ღ Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+- ★ Desejo trabalhar com a física no futuro
   
 
 ### Você pode entrar em contado comigo:
